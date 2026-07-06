@@ -1,1 +1,1 @@
-**Semester 3 assignments
+*Semester 3 assignments
